@@ -1,5 +1,8 @@
 ================================================================================
 текущее
+		идея - https://www.youtube.com/watch?v=hvLYzISx6dU
+
+
 	офигенные тайлы
 		https://krishna-palacio.itch.io
 		https://itch.io/s/31058/minifantasy-bundle
@@ -38,6 +41,7 @@
 	
 Идеи
 	https://www.reddit.com/user/Tsar333/posts/
+	майн
 	
 	
 Твитеры
